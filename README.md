@@ -1,12 +1,12 @@
-                                      <i>Empty your mind, be formless, shapeless, like water
+<i>Empty your mind, be formless, shapeless, like water
   
-                                         put water into a cup, it becomes the cup
+put water into a cup, it becomes the cup
 
-                                         put water into a teapot, it becomes the teapot
+put water into a teapot, it becomes the teapot
 
-                                         Now Water can Flow or creep or drip or crash
+Now Water can Flow or creep or drip or crash
 
-                                         Be Water my friend</i>
+Be Water my friend</i>
 
 
 
