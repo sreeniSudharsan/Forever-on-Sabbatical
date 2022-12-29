@@ -11,9 +11,6 @@ Be Water my friend</i>
 
 
 
-These words from Bruce Lee has stuck in my mind for a long time now, and that is how I aspire to live
-
-
 ✨<b>BUT FIRST!</b>✨
 
 
