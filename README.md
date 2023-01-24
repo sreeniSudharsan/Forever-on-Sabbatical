@@ -1,9 +1,9 @@
 
 <i>Empty your mind, be formless, shapeless, like water
   
-put water into a cup, it becomes the cup
+Put water into a cup, it becomes the cup
 
-put water into a teapot, it becomes the teapot
+Put water into a teapot, it becomes the teapot
 
 Now Water can Flow or creep or drip or crash
 
