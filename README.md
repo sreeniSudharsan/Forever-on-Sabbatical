@@ -19,8 +19,5 @@ Be Water my friend</i>
 
 ### 👋The name is Sreenivasan Raghavachari Sudharsan-- rolls right off the tongue, doesn't it? BUT you can call me Sreeni or Vas!👋
 
-Once again, hey there! I suppose the first obvious question would be
-
-**Wait, Who are you?**
-
+------------TO BE CONTINUED----------------
 
